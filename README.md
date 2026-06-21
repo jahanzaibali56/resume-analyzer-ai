@@ -248,6 +248,6 @@ GitHub:
 https://github.com/jahanzaibali56
 
 LinkedIn:
-https://www.linkedin.com/in/jahanzaib-ali-90b6b8321
+https://www.linkedin.com/in/jahanzaibali-eng
 
 ---
